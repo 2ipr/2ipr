@@ -3,7 +3,8 @@
 > 修己安人，作品，价值...经历，量变质变
 
 ![image](https://github.com/2ipr/2ipr/assets/118027538/a2033069-e750-4326-8e99-29fba5aaebc2)
-> 修己安人，自己就是最好的解决方案
+![image](https://github.com/2ipr/2ipr/assets/118027538/0efe317a-80ff-4207-807a-449e23910a77)
+> 修己安人，自己就是最好的解决方案，信任、支持及授权...
 
 “修己”的意思是修造自己，而不是改变他人。管理者先修己，用心改变自己，让员工受到良好的感应，自动地改变他们，更为快速有效。
 用高压的政策要求员工改变，并不符合安人的要求，也就是不符合人性化管理，大家就会以不合理为理由加以抗拒。
@@ -540,12 +541,6 @@
 ![image](https://github.com/2ipr/2ipr/assets/118027538/4eb554e2-ce96-4a60-8e0d-c1a4b3a8f73e)
 > 轻舟已过万重山
 
-![image](https://github.com/2ipr/2ipr/assets/118027538/465e9f74-701d-4bcf-be1c-b369a992fe2d)
-![image](https://github.com/2ipr/2ipr/assets/118027538/320bc68b-8bd7-42c1-8397-b83a97b867b3)
-> 8月14日（周一）晚7点举办2023年的年度演讲“成长”。这是雷军的第4次年度演讲，本次演讲主要聚焦过去30多年几次关键成长的经历和感悟。
-
-![image](https://github.com/2ipr/2ipr/assets/118027538/0efe317a-80ff-4207-807a-449e23910a77)
-
 ![image](https://github.com/2ipr/2ipr/assets/118027538/eaf2979f-deab-495a-b4c6-5a7a06c5ddc2)
 ![image](https://github.com/2ipr/2ipr/assets/118027538/4f8c23eb-a603-4cb3-97d1-96bc6446f16f)
 ![image](https://github.com/2ipr/2ipr/assets/118027538/bcc33585-76b5-45ee-bf20-7c4ae5714b14)
@@ -579,5 +574,9 @@
 朋友去川西旅游，昨晚吃鱼，鱼骨头卡在唯咙里，需要照喉镜，就这一个玩意，在新都桥，没有，开车一路堵，4小时到康定，没有，现在转去甘孜州医院了。
 看到好多心智幼稚的人，看到风景秀美的地方，就说好想在这住一辈子，一定是无忧无虑的童话世界，大锅大姐，人类发明城市，就是因为城市生活最舒适，不得已谁也不想住得偏远，你看这一根鱼刺把人折磨得，还别提衣食住行医疗娱乐教育了。
 审美可以文艺，但生活绝不要文艺。——卢克文
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/465e9f74-701d-4bcf-be1c-b369a992fe2d)
+![image](https://github.com/2ipr/2ipr/assets/118027538/320bc68b-8bd7-42c1-8397-b83a97b867b3)
+> 8月14日（周一）晚7点举办2023年的年度演讲“成长”。这是雷军的第4次年度演讲，本次演讲主要聚焦过去30多年几次关键成长的经历和感悟。
 
 ![Alt](https://repobeats.axiom.co/api/embed/b1d1aab384e5e3d38fc221c9343d9778bd9b1ba6.svg "Repobeats analytics image")
