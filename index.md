@@ -568,6 +568,7 @@
 
 本事不小的人，通常生活能力也不会太差。优秀的人在自律和自立方面也会同样优秀，不会任由生活乱得一团糟。如果在等待机会的过程中，先把生活打理妥当，会把自己准备在最佳状态，这样的人未来不会活得太差。至于一直活得乱糟糟的人，他的现在大体就是他的未来。
 
+![image](https://github.com/2ipr/2ipr/assets/118027538/eba2f39b-c619-44de-89b6-578f28b66b03)
 ![image](https://github.com/2ipr/2ipr/assets/118027538/90a144d2-dfbc-4f29-821d-ab6066153040)
 ![image](https://github.com/2ipr/2ipr/assets/118027538/81d0ad0f-e33b-457f-a575-fe8221048c5a)
 
