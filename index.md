@@ -16,6 +16,29 @@
 用高压的政策要求员工改变，并不符合安人的要求，也就是不符合人性化管理，大家就会以不合理为理由加以抗拒。
 管理者先求修己，感应被管理者也自动修己。双方面都修己，互动起来自然更加合理。人人自求合理，才是最有效的管理。
 
+
+![image](https://github.com/3ipr/3ipr/assets/118059334/8fe29b37-f910-4dc4-a26c-aae2ea94de3c)
+![image](https://github.com/3ipr/3ipr/assets/118059334/7c486ca0-cf93-425e-9b5c-0af8c6bcf2a2)
+![image](https://github.com/3ipr/3ipr/assets/118059334/cb983030-c1a6-485e-9513-19b7aa3eaef2)
+![image](https://github.com/3ipr/3ipr/assets/118059334/085ffc4d-0f9f-4925-9fe6-c2522b4ad6d3)
+![image](https://github.com/3ipr/3ipr/assets/118059334/7ad59478-64cd-438e-ba01-c104dbc15176)
+![image](https://github.com/3ipr/3ipr/assets/118059334/3e53746c-a106-4644-b0c2-5e3ed0843c95)
+![image](https://github.com/3ipr/3ipr/assets/118059334/662580f1-7e0c-45f0-b8b3-f198d0a74640)
+![image](https://github.com/3ipr/3ipr/assets/118059334/5d38d0fb-95b9-498e-9eed-5f0c033b6475)
+![image](https://github.com/3ipr/3ipr/assets/118059334/e83f52b4-fb36-41eb-9ef9-86dd10235a23)
+![image](https://github.com/3ipr/3ipr/assets/118059334/e9e2c8e9-5016-412a-8005-8375cf9673ba)
+
+![image](https://github.com/3ipr/3ipr/assets/118059334/3f4224be-de92-49a4-8cad-4e0e19b87497)
+![image](https://github.com/3ipr/3ipr/assets/118059334/2efe1af5-2eb3-41f3-9baf-b273ca6c7f51)
+![image](https://github.com/3ipr/3ipr/assets/118059334/b07b8893-d222-45ab-85e0-36f0c7246ebd)
+![image](https://github.com/3ipr/3ipr/assets/118059334/4e79704e-7b97-42a4-a563-80a13debfad0)
+![image](https://github.com/3ipr/3ipr/assets/118059334/6ee4adf4-380d-4622-9dbb-20b3cf67134f)
+![image](https://github.com/3ipr/3ipr/assets/118059334/b1280c89-23f7-4b65-a876-a01f996b47c1)
+![image](https://github.com/3ipr/3ipr/assets/118059334/5dbb9945-a838-49cc-9c5e-5b36893d2cc6)
+![image](https://github.com/3ipr/3ipr/assets/118059334/b01b6483-05f8-4423-95b1-68bd77e18994)
+![image](https://github.com/3ipr/3ipr/assets/118059334/0de5c00f-775f-487b-a821-dfbc41245b0f)
+![image](https://github.com/3ipr/3ipr/assets/118059334/b4a5be05-3990-4bf2-ac80-bb16c2527e7c)
+
 ![image](https://github.com/3ipr/3ipr/assets/118059334/aa1f9615-9d08-4644-9978-e152b2740df6)
 > 每一次压力和困难，都是在告诉你：抓住与逆境交锋的机会，这是一份考验，是助你成长的修炼场，而不是让你痛苦沉沦的枷锁。当你翻过眼前的高山，回头看那不过是一个矮坡。
 
@@ -1290,6 +1313,12 @@ ForkLift
 成年人：自己选择，自己负责，选择不同，结果迥异，思维习惯，量变质变，天道酬勤…
 
 不是每个人都能成为自己想要的样子，但每个人都可以努力成为自己想要的样子。相信自己，你能作茧自缚，就能破茧成蝶。限制客观存在，成功多从外部找原因，失败多从自身找原因。人生下来不是为了拖着锁链，而是为了展开双翼。
+
+![image](https://github.com/3ipr/3ipr/assets/118059334/937045cd-b89b-4f2f-ba34-f2dd37185b45)
+![image](https://github.com/3ipr/3ipr/assets/118059334/6c6836d8-70e4-4a32-8f78-63ae03923fc4)
+<img width="702" alt="image" src="https://github.com/3ipr/3ipr/assets/118059334/a04a8f08-2705-48c0-9f3d-918118129b37">
+<img width="722" alt="image" src="https://github.com/3ipr/3ipr/assets/118059334/cae2ee40-fb52-4366-ac4b-037ec4528a13">
+
 
 ```
 多or少
