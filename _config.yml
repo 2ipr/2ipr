@@ -4,4 +4,4 @@ plugins:
 
 title: 2ipr
 description: origin
-show_downloads: true
+show_downloads: false
