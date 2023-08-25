@@ -6,6 +6,17 @@
 成年人，理性、沉浸现在...
 ```
 
+![image](https://github.com/2ipr/2ipr/assets/118027538/28f864e1-cc7f-43dd-9d21-9b40edceebaf)
+> 人生是一场马拉松，一时一刻的成败得失，都不那么重要。
+
+所有的人生难题，你都将在成长中找到答案。
+人因梦想而伟大，又因坚持梦想而成长。
+只有脚踏实地的成长，才有足够的自信、勇气与决心，去迎接所有未知的挑战；
+也只有脚踏实地的成长，才能让自己内心充实，眼里有光，时时刻刻充满力量！
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/89013260-df8e-4d96-90ac-8b051a7e115c)
+
+
 ![image](https://github.com/3ipr/3ipr/assets/118059334/8d1a1ddb-6730-4a66-8a1e-5e7c95634f52)
 > 时间复利，经历，量变质变
 
@@ -531,7 +542,31 @@ ABCDEF
 ![image](https://github.com/2ipr/2ipr/assets/118027538/320bc68b-8bd7-42c1-8397-b83a97b867b3)
 > 8月14日（周一）晚7点举办2023年的年度演讲“成长”。这是雷军的第4次年度演讲，本次演讲主要聚焦过去30多年几次关键成长的经历和感悟。
 
+![image](https://github.com/2ipr/2ipr/assets/118027538/76232b8d-18c6-4f48-afc6-eac6cf458b05)
+> 遇到问题，第一时间找个懂的人问问。很多人觉得，自己遇到的问题，只能自己琢磨、自己搞定。实际上，无论你遇到什么问题，别人可能都遇到过，都解决了，甚至都有标准答案，你只要找人问问就可以。
 
-遇到问题，第一时间找个懂的人问问。很多人觉得，自己遇到的问题，只能自己琢磨、自己搞定。实际上，无论你遇到什么问题，别人可能都遇到过，都解决了，甚至都有标准答案，你只要找人问问就可以。
+![image](https://github.com/2ipr/2ipr/assets/118027538/9c5e99af-2745-425a-acfa-a01ecc16ccfc)
+> 敢想敢干非常重要，年轻人要有年轻人的魄力，很多事情没有想象得那么复杂，去试试就知道了。
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/24e21676-0aa7-46ad-8b3b-2a71d1e656d1)
+> 真的把这个梦想当回事，想办法拆解成一个又一个可实现的目标，然后竭尽全力去实现。
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/a1829cb5-4ab2-44fc-b86f-313d97d61c7c)
+> 一个人能力再强，也是有限的；找互补的朋友一块干，更容易成功。
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/40132739-22b9-4936-b0ec-0d5972da2830)
+> 一个人可能走得更快，但一群人走，才能走得更远。这就是金山35年最重要的经验。
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/700bc52a-0811-40ec-8c1a-ce4ef5af27a7)
+> 只有懂摄影、爱摄影，才能真正做好影像。
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/348df6d6-e8be-4d9e-9fa0-92be25acb388)
+> 高端产品设计三原则：“高端无短板，从参数领先到体验优先，软硬件深度融合”。
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/0c55dbf2-b0a8-4eaf-92a7-a50340ab2969)
+> 只有认知突破，才能带来真正的成长。
+
+![image](https://github.com/2ipr/2ipr/assets/118027538/08bbe19a-c527-4570-8025-ee88d8585ee3)
+> 每一段经历，每一次蜕变，都是一次认知的突破，更是一次关键的成长。在时代变迁的洪流中，如何获得内心的平静呢？我的答案是：成长。
 
 ![Alt](https://repobeats.axiom.co/api/embed/b1d1aab384e5e3d38fc221c9343d9778bd9b1ba6.svg "Repobeats analytics image")
